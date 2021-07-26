@@ -1,5 +1,15 @@
-- 👋 Hi, I’m @monigeo
-- 👀 I’m interested in start work on technology and learn more about it.
-- 🌱 I’m currently learning analysis and systems development.
-- 💞️ I’m looking to collaborate on other's code problems. Help and be helped!
-- 📫 How to reach me monicatatiane@hotmail.com
+Hello, there! 👋
+
+My name is Monica Sousa. I am geographer and I have been working on remoting sensing for 10 yeas. Currently, I am looking for enlarge and increase my knowledge in a different area, which is information Technology. Last year I started a new graduation in analysis and systems development. But I have been deepening my studies on my own for longer than that. I am a curious and proactive person when I am looking to learn new things.
+
+📫 You can find me at:
+
+Linkedin: www.linkedin.com/in/m%C3%B4nica-tatiane-de-sousa-29a069185/
+
+E-mail: monicatatiane@hotmail.com
+
+Instagram: www.instagram.com/monicageografia/?hl=pt-br
+
+Twitter: @moniigeo
+
+I hope I can contribute with this community!
