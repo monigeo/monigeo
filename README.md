@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @monigeo
+- 👀 I’m interested in start work on technology and learn more about it.
+- 🌱 I’m currently learning analysis and systems development.
+- 💞️ I’m looking to collaborate on other's code problems. Help and be helped!
+- 📫 How to reach me monicatatiane@hotmail.com
