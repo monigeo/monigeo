@@ -12,4 +12,6 @@ Instagram: www.instagram.com/monicageografia/?hl=pt-br
 
 Twitter: @moniigeo
 
+Lattes: http://lattes.cnpq.br/7849595827826563
+
 I hope I can contribute with this community!
